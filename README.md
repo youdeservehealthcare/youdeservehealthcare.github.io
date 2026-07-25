@@ -1,12 +1,36 @@
-👋🏼 Hello there! I’m an American, and I want everyone to have healthcare, and I want the government to pay for it. This website is for Americans, like you, who might disagree or have some concerns about that idea.
+Hi there.
 
-If you’ll give me 5 minutes of your time, I truly believe we can save lives and change this country for the better, together.
+You don’t know me, but I have a small favor to ask.
+
+I live in the United States of America. I have lived here for my entire life. **I want everyone to have healthcare, and I believe the government should pay for it.**
+
+“Medicare for All”.
+
+I also know a lot of Americans disapprove of this idea, for a variety of reasons. If you’re one of these people, the favor I’d like to ask of you is for 5 minutes of your time. I’d like to explain why I believe in this, and what our country could look like if we made this change. I believe in this very strongly. In fact, I believe this might be the single most important issue in America today.
+
+I’m not a politician. I do not work with any political candidate or party. I’m not part of a PAC or lobbying group. No one asked me to make this, no one is paying me a single penny for any of it, nor compensating me in any other form. I’m literally just a person who spent a few hours on a Saturday writing this, because we have an election coming up in November and I believe this is a chance to literally save hundreds of thousands of lives and dramatically change this country for the better.
+
+5 minutes, and an open mind for some thoughts from a fellow American.
+
+I don’t want to waste your time though. Where would you say you stand today?
+
+<details>
+  <summary>I agree! Medicare for All!</summary>
+Fantastic! You don’t have to keep reading. Instead, spend those 5 minutes taking a look at the local candidates running for for election this November. (And any primaries taking place before then.) If a candidate isn’t willing to stand for Medicare for All, you shouldn’t vote for them. For example, I live in Michigan, and I’m supporting [Abdul El-Sayed for Senate](https://abdulforsenate.com).
+</details>
+<details>
+  <summary>I completely disagree, and nothing you say will ever change my mind even a tiny bit.</summary>
+That’s disappointing to hear, but I encourage you to keep reading just to be sure. Even if I can't sway your opinion, maybe this can show you a different perspective. I’d hope we’re all willing to listen to each-other and consider making the best choices we can for ourselves, our families, and our communities. 
+</details>
+
+<details>
+  <summary>I disagree, but I’m open to listening.</summary>
+This website is for you. Thank you for your time and thoughtfulness.
+</details>
 
 Before we get started, a couple of quick notes so we’re on the same page:
 
 - When I talk about “you”, I’m describing _The Average American Who Works For A Living And Gets Health Insurance Through Their Job_. Your own individual situation may differ from examples I use below, and I ask for your grace and understanding that I, of course, can’t make this perfectly unique for every person. If something does not apply to you directly, please imagine _The Average American_ to whom it would.
-- When I say “Medicare for All” or “MfA”, I’m referring to a healthcare system where services like doctor visits and medications are paid for by the government, from money raised by taxes. There are a bunch of ideas with the same basic premise (government provides healthcare) so I’m just going to use MfA as a stand-in for all of them.
-
 ---
 
 Okay! Now let’s start with something I bet we’ll agree on:
@@ -15,14 +39,14 @@ Okay! Now let’s start with something I bet we’ll agree on:
 
 “…endowed by their Creator with certain unalienable Rights, that among these are **Life**, Liberty and the pursuit of Happiness.”
 
-Life, an unalienable right, the American way since 1776.
+Life, an unalienable right, the American way since 1776. But what does that mean, really? Let’s break it down.
 
 1. Life is a gift, a **right**, that everyone is born with. It’s not something a king, ruler, or government allows you to have.
 2. Life is right that cannot be sold, given away, or taken away by any law or government. It is **unalienable**.
 
 Okay. This makes sense to me. If we can agree that life is a human right—and I sincerely hope we can—let’s take another step.
 
-# What the heck is the government even for?
+#What the heck is the government even for?
 
 Obviously, this is a very complex question and a lot of people have been thinking about this for thousands of years. For the sake of this website, and because I’m definitely not an political science major, I’ll keep it basic:
 
