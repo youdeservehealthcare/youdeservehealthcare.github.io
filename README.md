@@ -8,7 +8,7 @@ I live in the United States of America. I have lived here for my entire life. **
 
 I also know a lot of Americans disapprove of this idea, for a variety of reasons. If you’re one of these people, the favor I’d like to ask of you is for 5 minutes of your time. I’d like to explain why I believe in this, and what our country could look like if we made this change. I believe in this very strongly. In fact, I believe this might be the single most important issue in America today.
 
-I’m not a politician. I do not work with any political candidate or party. I’m not part of a PAC or lobbying group. No one asked me to make this, no one is paying me a single penny for any of it, nor compensating me in any other form. I’m literally just a person who spent a few hours on a Saturday writing this, because we have an election coming up in November and I believe this is a chance to literally save hundreds of thousands of lives and dramatically change this country for the better.
+But don't worry, I'm not going to ask you for donation or to sign up for an email newsletter. I’m not a politician. I do not work with any political candidate or party. I’m not part of a PAC or lobbying group. No one asked me to make this, no one is paying me a single penny for any of it, nor compensating me in any other form. I’m literally just a person who spent a few hours on a Saturday writing this, because we have an election coming up in November and I believe this is a chance to literally save hundreds of thousands of lives and dramatically change this country for the better.
 
 5 minutes, and an open mind for some thoughts from a fellow American.
 
